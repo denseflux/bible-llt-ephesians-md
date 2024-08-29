@@ -1,0 +1,1 @@
+And said to them, “I am a Hebrew, and I fear Yahweh Elohim of heaven who made the sea and the dry land.”

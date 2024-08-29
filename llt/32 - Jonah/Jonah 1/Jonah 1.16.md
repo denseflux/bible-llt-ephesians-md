@@ -1,0 +1,1 @@
+Then the men feared Yahweh a great fear, and they offered sacrifices to Yahweh and they vowed vows.

@@ -1,0 +1,1 @@
+And the sailors feared and each cried to his elohim, and they hurled the cargo which was in the ship to the sea to make it lighter from upon them. And Yonah went down into the far reaches of the ship, and he laid down and fell asleep.

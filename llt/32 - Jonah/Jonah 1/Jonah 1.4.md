@@ -1,0 +1,1 @@
+And Yahweh hurled a great wind to the sea and there was a great storm on the sea, and the ship considered breaking apart.

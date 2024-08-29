@@ -1,0 +1,1 @@
+And he said to them, “Pick me up and hurl me to the sea. Then the sea will become quiet for you, for I know that on account of me this great storm is to you.”

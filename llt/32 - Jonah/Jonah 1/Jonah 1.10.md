@@ -1,0 +1,1 @@
+And the men feared a great fear and they said to him, “What is this you have done?” For the men knew that he was fleeing from before the face of Yahweh, because he had told them.

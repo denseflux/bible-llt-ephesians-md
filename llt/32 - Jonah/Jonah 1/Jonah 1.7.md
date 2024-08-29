@@ -1,0 +1,1 @@
+And each man said to his companion, “Come, let us cause lots to fall, so that we can know on whose account this evil is to us.” So they caused lots to fall and the lot fell on Yonah.

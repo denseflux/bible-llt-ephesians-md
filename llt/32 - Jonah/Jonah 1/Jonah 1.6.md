@@ -1,0 +1,1 @@
+And the chief of the sailors approached him and said, “What is it with you, sleeping? Arise, call to your Elohim. Perhaps the-Elohim will be concerned about us so that we will not perish.”

@@ -1,0 +1,1 @@
+And Yahweh appointed a great fish to swallow Yonah and Yonah was in the inner-parts of the fish three days and three nights.

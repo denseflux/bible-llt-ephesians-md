@@ -1,0 +1,1 @@
+And they called out to Yahweh and said, “Please Yahweh, do not let us perish on account of this man’s life and don’t set innocent blood against us, for you, Yahweh, have done as you have pleased.”

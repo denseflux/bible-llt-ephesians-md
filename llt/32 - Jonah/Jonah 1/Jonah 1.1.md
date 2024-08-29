@@ -1,0 +1,1 @@
+The word of Yahweh came to Yonah the son of Amittai saying,

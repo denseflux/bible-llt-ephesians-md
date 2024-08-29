@@ -1,0 +1,1 @@
+“Arise, go to Nineveh the great city and call out against it, for their wickedness has come up before Me.”

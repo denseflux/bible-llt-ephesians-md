@@ -1,0 +1,1 @@
+And Yonah arose to flee to Tarshish from before the face of Yahweh and he went down to Joppa and he found a ship which was going to Tarshish and he paid the fare and he went down into it to go with them to Tarshish from before the face of Yahweh.
